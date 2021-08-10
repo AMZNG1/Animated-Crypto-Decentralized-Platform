@@ -9,4 +9,4 @@ Project : Animated  Crypto Network (decentralized) Platform  - (application) GUI
 
 
 
-Mission - Create Powerful Animated Blockchain Platform for individuals, who  values and have great passion and love to Animated  Reallity, Dimenson or Universe.
+Mission - Create Powerful Animated Blockchain Platform for individuals, who  values and have great passion and love to Animated  Reality, Dimenson or Universe.
