@@ -1,4 +1,4 @@
-Platform :  Animated Crypto  Decentralized Network (ACDN) - Temporary (Sub) Platform  :  https://discord.gg/U78dBhGp
+Platform :  Animated Crypto  Decentralized Network (ACDN) - Temporary (Sub) Network  :  https://discord.gg/U78dBhGp
 
 
 
